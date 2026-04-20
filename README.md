@@ -1,1 +1,1 @@
-# QamPiQampi
+# PuRiqchaq
